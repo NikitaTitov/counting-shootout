@@ -1,0 +1,1 @@
+It's a repository for a studying? ypu can take whatever you want without a permission :)
